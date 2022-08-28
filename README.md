@@ -5,6 +5,8 @@ Saved from [arrangebypenis.com](https://web.archive.org/web/20120619032849/http:
 
 #### Arrange by penis
 
+You might want to checkout also the [ArrangeByImage](https://github.com/ZaDarkSide/ArrangeByImage) project
+
 ---
 
 They've said: 
